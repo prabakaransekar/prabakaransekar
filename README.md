@@ -1,4 +1,3 @@
-
 Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Prabakaran Sekar========================================================================================================================================Electrician-----------I am a licensed Electrician with 7+ years of experience in the electrical industry. Proficient in residential and commercial electrical systems, adept at troubleshooting and resolving complex electrical issues. Skilled in safely removing and replacing energy meters in residential and commercial properties. Trained new technicians on proper techniques for meter replacements to maintain accurate records. Licensed as Electrical Installation Wire men belongs to Electrical and Water Authority (EWA) of Bahrain Government. Strong communication skills and a commitment to providing quality workmanship.* 🌍  I'm based in Manama city, Bahrain* ✉️  You can contact me at [prabakaransekar22@gmail.com](mailto:prabakaransekar22@gmail.com)* 🤝  I'm open to collaborating on projects
 
 <a href="https://www.github.com/prabakaransekar" target="_blank" rel="noreferrer"><imgsrc="https://img.shields.io/github/followers/prabakaransekar?logo=github&style=for-the-badge&color=0891b2&labelColor=1c1917" /></a>
@@ -20,8 +19,11 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 
 <div width="100%" align="center"></div><br /><br /><br /><br /><br /><br /><br />
 
-  
  
-  
 
  
+
+ 
+
+
+  
